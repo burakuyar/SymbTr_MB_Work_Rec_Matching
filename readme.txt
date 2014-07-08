@@ -1,0 +1,1 @@
+aramam sormam bir daa
